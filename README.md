@@ -1,16 +1,17 @@
-## Hi there 👋
+✨ Hey, I'm Megha ✨
 
-<!--
-**Meghaverse-16/Meghaverse-16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎨 Designer • Creative Editor • Visual Storyteller  
+🌙 Turning imagination into aesthetic visuals  
+💫 Exploring creativity, art & digital aesthetics  
 
-Here are some ideas to get you started:
+🪻 Creating beyond the ordinary.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌸 About Me
+
+✦ Creative Mind  
+✦ Aesthetic Lover  
+✦ Visual Storyteller  
+✦ Editing Enthusiast  
+✦ Dreaming in Colors & Pixels  
+
+🦋 “Art speaks where words are unable to explain.” 🦋
